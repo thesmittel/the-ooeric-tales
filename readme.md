@@ -5,156 +5,50 @@
  
 </p>                                  
 
-Once you're here, you should exit through the WORMS. Nonsense! WORMS God Says. Incredible. They warned us. 
-These foul creatures, these empty husks, they emptied my colons and ";"s oooueah. Slowly they dug a gaping 
-hole in my ass, to ping me through the legendary cock of power and cokc and i have pissed. Great! Awesome! 
-No-one saw me though! My :cousinbotto:s pooped poop in hell! But Satan wanted shit! He took the shit, 
-flipped it, and ate a hamburger. Yum! It was shitty. Gorgeous. end ? BOOM! Suddenly Nitroglyceryn farts 
-escaped from my ass! Satan is pleased. 😄 "That was quite PUNGENT! I've gotten fat." Satan was fat. Extra 
-obese. Incredibly voluminous. Ridiculously sizeable. But he didn't mind, because he had guts. Large guts. 
-Enormous fucking testicles. He emptied those husks. Sad! 
+Once you're here, you should exit through the WORMS. Nonsense! WORMS God Says. Incredible. They warned us. These foul creatures, these empty husks, they emptied my colons and ";"s oooueah. Slowly they dug a gaping hole in my ass, to ping me through the legendary cock of power and cokc and i have pissed. Great! Awesome! No-one saw me though! My :cousinbotto:s pooped poop in hell! But Satan wanted shit! He took the shit, flipped it, and ate a hamburger. Yum! It was shitty. Gorgeous. end ? BOOM! Suddenly Nitroglyceryn farts escaped from my ass! Satan is pleased. 😄 "That was quite PUNGENT! I've gotten fat." Satan was fat. Extra obese. Incredibly voluminous. Ridiculously sizeable. But he didn't mind, because he had guts. Large guts. Enormous fucking testicles. He emptied those husks. Sad! 
 
 Yes, why more stupid words? But we already that. We cannot write a goddamn story.
 
-Once upon ooer, there was a donut rain which wiped out Houston. Years after the incident, rapture commenced. 
-Everything dissolved and exploded. A plague of locusts consumed the corn entirely and disabled the government 
-in New Jersey. Goats and frogs are having [a] fun revolution and are cutting heads off! Oh No!
-Not to brag, but mom said I can jump, look: death. 
+Once upon ooer, there was a donut rain which wiped out Houston. Years after the incident, rapture commenced. Everything dissolved and exploded. A plague of locusts consumed the corn entirely and disabled the government in New Jersey. Goats and frogs are having [a] fun revolution and are cutting heads off! Oh No!Not to brag, but mom said I can jump, look: death. 
 
-OwO When they fury, oman perishes, yemen dies and comes the Sun from Tzu ARE WE ARE WE ROCK YOU ROCK YOU FUCK 
-YOU AND SHIT YOURSELF NOW OR ELSE. I WILL PEE YOUR SHIRT OUT WITH MY CUTE PET BEING AND COUSINBOTTO!! 
-Before I snap, would anyone eat a morgloob? Please don't tell my other wife about the attic's weeping child. 
-Some being broke my first ball room open again. I couldn't find my balls and cock, this sucks. Do they have 
-any fried cheese?
+OwO When they fury, oman perishes, yemen dies and comes the Sun from Tzu ARE WE ARE WE ROCK YOU ROCK YOU FUCK YOU AND SHIT YOURSELF NOW OR ELSE. I WILL PEE YOUR SHIRT OUT WITH MY CUTE PET BEING AND COUSINBOTTO!! Before I snap, would anyone eat a morgloob? Please don't tell my other wife about the attic's weeping child. Some being broke my first ball room open again. I couldn't find my balls and cock, this sucks. Do they have any fried cheese?
 
-WORMBLS!! ! Worms hell. Do we are have death or defecation? Only time will eat us, uh, you cannot find a 
-hamburger below thirty-six crimsoCOIN in the economy. It absolutely hurt going to get lemonade from the 
-ooer... uh... store. Along the way of worms I murdered a horse with Darius gun bullet. Mourning I screamed 
-into crimso hole, and blown away, what what BUT% 15% NOW EVERYONE IS dead. 15% speedrun of life began when 
-I was born in a haunted shoebox somwhere. I can't husk without my husker buster 3000, my favorite toy for 
-busting husks.
+WORMBLS!! ! Worms hell. Do we are have death or defecation? Only time will eat us, uh, you cannot find a hamburger below thirty-six crimsoCOIN in the economy. It absolutely hurt going to get lemonade from the ooer... uh... store. Along the way of worms I murdered a horse with Darius gun bullet. Mourning I screamed 
+into crimso hole, and blown away, what what BUT% 15% NOW EVERYONE IS dead. 15% speedrun of life began when I was born in a haunted shoebox somwhere. I can't husk without my husker buster 3000, my favorite toy for busting husks.
 
-Making a colonoscopy easy, OoerTech™ guarantees lubricated fun or your lemons back. Only 360₢ per second. 
-BARGAIN!!! 
-Felony of ketchup, colorized, circa 36 BC, By Gunther von Hohenauerbachsteinhausen-Fallerslebenstettenbreitenzien 
-of Anglia, son of Tom. Assassinations were encouraged by Botto for Ooeric reduction and decimation. 
-Hardwood. WHAT, said Hardwood. Hardwood. Hardwood was exploded wood, yumy Okay exploded. excommunicated 
-cucumbers did defileation Grenadian, slayer of """"""""""""""egg"""""""""""""" fried eggsz. Linux tek lips 
-crimso went Insane see. Banned, was the moth Amalgamation, harbinger Testicular menegeterianeatmeiaibffiawaitis 
-remember beeb! Milkers milked hell milk milkingly. Boob and other thinking is okay to do so. shit. :poopbeing: 
-man eat your soul. :spusk:  scrungus KATZE proceeded vivisection procedure bloodshed baby. Defenestration of 
-Prague location, Prague gone? Remains. Now tomorrow I will eat orphans, yummy :yucky:. Widow hood in you are 
-not very useful villag Glock made Medicine for Degenerate personildes . Merkel killed Macron. Tonight cannibalism 
-will reign and asses will fart. Cheese will be shat out of  man sized ooer holes. Todat we piss on possible senators 
-and eat their bingoids for charity money. End humanity. But kill bob burger cheese lettuce individual. Liquidate 
-crimso existence. :crimso:. Scream. Child Organ you have stomach apocalypse today. Colonoscopize sir Brian da Beast 
-scringe. Blapst the Bloodtaker of Ooer was angered and more than three years after the collapse of ooer, they caused 
-a bubble to form, blowing up all humankind in the tollbooth. This will be a devastating occurence! It will reduce 
-plants and algae to atom. 
+Making a colonoscopy easy, OoerTech™ guarantees lubricated fun or your lemons back. Only 360₢ per second. BARGAIN!!! Felony of ketchup, colorized, circa 36 BC, By Gunther von Hohenauerbachsteinhausen-Fallerslebenstettenbreitenzien of Anglia, son of Tom. Assassinations were encouraged by Botto for Ooeric reduction and decimation. Hardwood. WHAT, said Hardwood. Hardwood. Hardwood was exploded wood, yumy Okay exploded. excommunicated cucumbers did defileation Grenadian, slayer of """"""""""""""egg"""""""""""""" fried eggsz. Linux tek lips crimso went Insane see. Banned, was the moth Amalgamation, harbinger Testicular menegeterianeatmeiaibffiawaitis remember beeb! Milkers milked hell milk milkingly. Boob and other thinking is okay to do so. shit. :poopbeing: man eat your soul. :spusk:  scrungus KATZE proceeded vivisection procedure bloodshed baby. Defenestration of Prague location, Prague gone? Remains. Now tomorrow I will eat orphans, yummy :yucky:. Widow hood in you are not very useful villag Glock made Medicine for Degenerate personildes . Merkel killed Macron. Tonight cannibalism will reign and asses will fart. Cheese will be shat out of  man sized ooer holes. Todat we piss on possible senators and eat their bingoids for charity money. End humanity. But kill bob burger cheese lettuce individual. Liquidate crimso existence. :crimso:. Scream. Child Organ you have stomach apocalypse today. Colonoscopize sir Brian da Beast scringe. Blapst the Bloodtaker of Ooer was angered and more than three years after the collapse of ooer, they caused a bubble to form, blowing up all humankind in the tollbooth. This will be a devastating occurence! It will reduce plants and algae to atom. 
 
-Frying Lemons presents: The Big Kaboom of Valkyrie, Which Will Destroy Botto!
-Haha, but he is indestructible and already warm and gooey just like like wax wax.  Can you withstand my manly musk?
-Know that I can! Update: Shit my pantsm m mm yummy mmm tasty microwave sounds. 
-UR MAM AES HOT but :cousinbotto: I :cousinbotto: I :cousinbotto: I :cousinbotto: :cousinbotto: sorry, I shit your 
-your update: udate: pantssesessese. death. 
+Frying Lemons presents: The Big Kaboom of Valkyrie, Which Will Destroy Botto!Haha, but he is indestructible and already warm and gooey just like like wax wax.  Can you withstand my manly musk?Know that I can! Update: Shit my pantsm m mm yummy mmm tasty microwave sounds. UR MAM AES HOT but :cousinbotto: I :cousinbotto: I :cousinbotto: I :cousinbotto: :cousinbotto: sorry, I shit your your update: udate: pantssesessese. death. 
 
-There is once a  small lifetime, where ball is life what can u translate this pl flowing yogurt underground in days 
-and weeks by, and you will ask FOR MERCY spanking, please work, please do I :cousinbotto: speak this clearly? enough 
-of this the time there is these alliterations that FUCK! YEAAHHH :ohno:  Fish it ranno tastes like horny ranno mercury. 
-Yummy immortality hmhm. Now buy all of Ooer's atomizers or face Maurice. Only the best of the best can eat the fish,
-because the fish meal is poisonous. Rapp Zapp knishes Zoinks! Wahooey! Awooga! Walla Walla Worm bath doesn't hurt so 
-get Stickygoat to the Unis pit Complex™ (trademarked) (marked) (edited) © 2029 and it will mixes with gingerbread to 
-help with your problem of which protogen is the biggest slime ball of them all!
+There is once a  small lifetime, where ball is life what can u translate this pl flowing yogurt underground in days and weeks by, and you will ask FOR MERCY spanking, please work, please do I :cousinbotto: speak this clearly? enough of this the time there is these alliterations that FUCK! YEAAHHH :ohno:  Fish it ranno tastes like horny ranno mercury. Yummy immortality hmhm. Now buy all of Ooer's atomizers or face Maurice. Only the best of the best can eat the fish,because the fish meal is poisonous. Rapp Zapp knishes Zoinks! Wahooey! Awooga! Walla Walla Worm bath doesn't hurt so get Stickygoat to the Unis pit Complex™ (trademarked) (marked) (edited) © 2029 and it will mixes with gingerbread to help with your problem of which protogen is the biggest slime ball of them all!
 
-There's no better way to tell apart two maeglins than violent marglins, simply put them into Moscow and rub their 
-faces together like clams for sale at footmart on the thirty-sixth, said the Confessional Newspaper. Customers are 
-not allowed to hit other customers, because it sounds fun and cool. Too much blood has filled my organs, i cannot 
-continue to exist. It in is if I'm or at the no no no no no yes <:trollface:799723397906956309>... 
-Anyway, qwertyazerty. 
-Furthermore, qwertyazerty. Today. qwertyazerty. I was pinging qwertyazerty, qwertzйцукен, qwertyazerty, and qwertyazerty! 
-I am the bacon512, fucker of all whitenames. Mom! bacon512 fucked me hard yep. <:cousinreal:747155749620416583>
+There's no better way to tell apart two maeglins than violent marglins, simply put them into Moscow and rub their faces together like clams for sale at footmart on the thirty-sixth, said the Confessional Newspaper. Customers are not allowed to hit other customers, because it sounds fun and cool. Too much blood has filled my organs, i cannot continue to exist. It in is if I'm or at the no no no no no yes <:trollface:799723397906956309>... Anyway, qwertyazerty. Furthermore, qwertyazerty. Today. qwertyazerty. I was pinging qwertyazerty, qwertzйцукен, qwertyazerty, and qwertyazerty! I am the bacon512, fucker of all whitenames. Mom! bacon512 fucked me hard yep. <:cousinreal:747155749620416583>
 
-Why did you me <@112305782028062720> Stanky <:garfie:889339481256247307>. Here i am ass, coming pan sexyual 
-<:uhhhh:495249068789071882> Bruh moments ñooññsñooñ, said Stanky Joe. I will marry ñooññsñooñ how devastation will 
-end perish. Stanky xok party crimgis at the University party place understood that colonoscopies are fun for all, but? 
-Being a living being, my cat bame must be "BEING". Makes sense. However, BEING ran. He escaped the unis pit, quick! 
-Subjugate the beign, or i will remove your ability to think abiur organs of inside body eeek.
+Why did you me <@112305782028062720> Stanky <:garfie:889339481256247307>. Here i am ass, coming pan sexyual <:uhhhh:495249068789071882> Bruh moments ñooññsñooñ, said Stanky Joe. I will marry ñooññsñooñ how devastation will end perish. Stanky xok party crimgis at the University party place understood that colonoscopies are fun for all, but? Being a living being, my cat bame must be "BEING". Makes sense. However, BEING ran. He escaped the unis pit, quick! Subjugate the beign, or i will remove your ability to think abiur organs of inside body eeek.
 
-See, it beckons toward the earthlings that died during the ooer reckoning. WE SCRUNGE FOR JIJA and CRIMSO SO PING 
-Hi @hi bacon512, lovely weather we're having, blooding organs and organs and organs with organs soup tasty in scungoidal 
-Lemonic Demonic places, filled sevenfold with avenged warriors. These warriors were from Oman. Died, they did :pensivebread:. 
-one by one we tell a story smittel was right, we one by one are telling a story. Story a time, one by one telling are? 
-To atom we live dying alive death alive alive mets no gone squidbillies cancelled :pensivehusk:. uncancelled. recancelled. 
-Dumb luck, I pooed my coat hangers! Shit, being?! What is ominbot doing, wtf step-bro is why why why?! No way!!! Multipla. 
-So cute 🥺🥺 💖 🥰!! omfww guh...Guh! EXPLOSION it fucking sounds canada?!‽ aweueueahhuahughguuuuhhhhhhhhhhhhhh :botto: 
-actually :bottoknife: suffering stab stab stab kill? MURDER. DESTROY. love :). ELIMINATE. PURGE. END. CEASE. 
+See, it beckons toward the earthlings that died during the ooer reckoning. WE SCRUNGE FOR JIJA and CRIMSO SO PING Hi @hi bacon512, lovely weather we're having, blooding organs and organs and organs with organs soup tasty in scungoidal Lemonic Demonic places, filled sevenfold with avenged warriors. These warriors were from Oman. Died, they did :pensivebread:. one by one we tell a story smittel was right, we one by one are telling a story. Story a time, one by one telling are? To atom we live dying alive death alive alive mets no gone squidbillies cancelled :pensivehusk:. uncancelled. recancelled. Dumb luck, I pooed my coat hangers! Shit, being?! What is ominbot doing, wtf step-bro is why why why?! No way!!! Multipla. So cute 🥺🥺 💖 🥰!! omfww guh...Guh! EXPLOSION it fucking sounds canada?!‽ aweueueahhuahughguuuuhhhhhhhhhhhhhh :botto: actually :bottoknife: suffering stab stab stab kill? MURDER. DESTROY. love :). ELIMINATE. PURGE. END. CEASE. 
 
-Tomorrow, there will be events that historians cannot think to comprehend thought. Gary is gary. Why do people not understand that? 
-God I'm about to eat my hat with squid. Damn squids touching God I'm about to eat my hat with squid. Damn squids touching 
-my multipla!!! Drive tonight with sticky squids!! orangutans dance intoxication??? The wormies 😋 wormbls wormmums wormy 
-WAAAARGHHH! Wahooey! Yikes! Zoinks! Gadzooks! exclaimed speedily. The zeitgeist ear cum worm deez testicles in no neat zone. 
+Tomorrow, there will be events that historians cannot think to comprehend thought. Gary is gary. Why do people not understand that? God I'm about to eat my hat with squid. Damn squids touching God I'm about to eat my hat with squid. Damn squids touching my multipla!!! Drive tonight with sticky squids!! orangutans dance intoxication??? The wormies 😋 wormbls wormmums wormy WAAAARGHHH! Wahooey! Yikes! Zoinks! Gadzooks! exclaimed speedily. The zeitgeist ear cum worm deez testicles in no neat zone. 
 Why do we eat anything? We can just hug each single dodo broke complexity. Who shall PING Crimso? you ? Me? Even he or unis… 
 
-I shat at your mother. Mario movie is almost upon us. Are we the gooer? No. We will metastasize them (edited). What murders! 
-Guh?? Once upon a unis there was a big frog, THIS FROG IS HAZARDOUS AND BALLS DESTROYED BY HIM TO AVENGE THE DEATH OF HIS FATHER, 
-"MY SUPERHERO" OOOO Everyone died and ate fresh beans, ooo, so they were actually going to go to my birthday funeral at 
-the bottom of the local unis pit were the wild beans not human… oh that's not a rock. I shat :ooooOOOOoooOOOO: Why do people exist‽ 
-Maybe they want and suffer to respect. Ban ooer (HOW?!?!‽)  
+I shat at your mother. Mario movie is almost upon us. Are we the gooer? No. We will metastasize them (edited). What murders! Guh?? Once upon a unis there was a big frog, THIS FROG IS HAZARDOUS AND BALLS DESTROYED BY HIM TO AVENGE THE DEATH OF HIS FATHER, "MY SUPERHERO" OOOO Everyone died and ate fresh beans, ooo, so they were actually going to go to my birthday funeral at the bottom of the local unis pit were the wild beans not human… oh that's not a rock. I shat :ooooOOOOoooOOOO: Why do people exist‽ Maybe they want and suffer to respect. Ban ooer (HOW?!?!‽)  
 
-man. Hello. Jello. Cello big. Holy moly that's golf! Honda Civic
-massacre incident, 2021, 13 Civics were crushed by giant lenin 🍋 and line 🍏 and exploded. Scientist Dave discovers that 
-worms have leggs and arms. They shit you into a bucket of rotten unises. :unis: angry. The bober of unising became angry 
-:unis:… :unis:! :unis: :unis:. :unis:. Then, he died. :unis:. His corpse arose from the garlic bread, smelling like wet husks. 
-Rehydrating is what helps poor lemons find juices and create curt. He will shit and fight the eat shitter. Gigglejuice cracked 
-shit heads, why jauris is spooky?? :unis: Goats do like salt. However they will explode, causing plastic to become tree leaves. 
+man. Hello. Jello. Cello big. Holy moly that's golf! Honda Civicmassacre incident, 2021, 13 Civics were crushed by giant lenin 🍋 and line 🍏 and exploded. Scientist Dave discovers that worms have leggs and arms. They shit you into a bucket of rotten unises. :unis: angry. The bober of unising became angry :unis:… :unis:! :unis: :unis:. :unis:. Then, he died. :unis:. His corpse arose from the garlic bread, smelling like wet husks. Rehydrating is what helps poor lemons find juices and create curt. He will shit and fight the eat shitter. Gigglejuice cracked shit heads, why jauris is spooky?? :unis: Goats do like salt. However they will explode, causing plastic to become tree leaves. 
+
 Once upon a time, squirrels invaded mom shit. If they had only philosophized! The uranium was leaking water?? how??
 
-However, hup is smol like bean ❤️ That so? Yes, it seems my hup time has ended. Now I will no longer it what? Maybe the banana it? 
-Stickygoat! Smittel has made the destruction of cardivascular functions within the president's forbidden ass to >ban polk; this 
-cheese ($500) was five hundred (500), can it ranch dre$$sings :ban: one by one we tell a story YEA yea yea 🎶 🕺 Then I yeA! 
-Then a yEa GOATS YeA! COMING FOR YOU, RUN OR ELSE BECOME DEATH, STICKY OF Cheese GoaT transformers. Yo I saw a poopbeing watching 
-over toast. Should we ooo? Should we blast banjo music? Yes! 🤠 ooo ooo ooo 😂 After oooing, the goats did so much dancing! 
-Decomposed! Decompressed! Denoted! Dethrowned! Dethrappelated! Defenestrated! Defrodled! Demolisticastesated! Disparaged! DISCOMBOPULATED!!! 
-Disemboweled… 
+However, hup is smol like bean ❤️ That so? Yes, it seems my hup time has ended. Now I will no longer it what? Maybe the banana it? Stickygoat! Smittel has made the destruction of cardivascular functions within the president's forbidden ass to >ban polk; this cheese ($500) was five hundred (500), can it ranch dre$$sings :ban: one by one we tell a story YEA yea yea 🎶 🕺 Then I yeA! Then a yEa GOATS YeA! COMING FOR YOU, RUN OR ELSE BECOME DEATH, STICKY OF Cheese GoaT transformers. Yo I saw a poopbeing watching over toast. Should we ooo? Should we blast banjo music? Yes! 🤠 ooo ooo ooo 😂 After oooing, the goats did so much dancing! Decomposed! Decompressed! Denoted! Dethrowned! Dethrappelated! Defenestrated! Defrodled! Demolisticastesated! Disparaged! DISCOMBOPULATED!!! Disemboweled… 
 
-One of your bowels distended! Anyways, continuing cousin "chaos", they stole the Orb! We gotta go to church of namo Jeff and Botto Bezos. 
-Where is it? Gone! Disintegrated! Waht LAZERS! Where? Everywhere! Even in horse! How How Whom Whose What When Where Why Stop. wh? Actually, 
-giraffes. No, they don't shit. Instead Harold has a tall giraffe that snapped. How many frogs do it takes to take a tingly rod and destroy it? 
-About seven years of jolly cute golfing in Tajikistan, yet here I am overloading frogs in the deep space. OSTANTETATIOUSLY DERIVED HOMONYM 
-cromgis joy bar! Wowie. That's botto! Botto is back! He void and the banana: Kris will take bones! Please take them away. 
-It's dangerous to have rocket blapst in your bag. Please save the mind of botto. HE LIVES! No. This is chad from Spongebob, he died. Why?
-Crashed into comically large spoon. After the incident, rapture occured yesterday and AGAIN?? Houston Astros have lost humanity. I developed  
-clabsos. professional slayer Botto, defenestrator of Prague, revolutionary, esteemed, Pioneer! I will endeavor to rot. Decomposition, a 
-process also known as "crungling".
+One of your bowels distended! Anyways, continuing cousin "chaos", they stole the Orb! We gotta go to church of namo Jeff and Botto Bezos. Where is it? Gone! Disintegrated! Waht LAZERS! Where? Everywhere! Even in horse! How How Whom Whose What When Where Why Stop. wh? Actually, giraffes. No, they don't shit. Instead Harold has a tall giraffe that snapped. How many frogs do it takes to take a tingly rod and destroy it? About seven years of jolly cute golfing in Tajikistan, yet here I am overloading frogs in the deep space. OSTANTETATIOUSLY DERIVED HOMONYM cromgis joy bar! Wowie. That's botto! Botto is back! He void and the banana: Kris will take bones! Please take them away. It's dangerous to have rocket blapst in your bag. Please save the mind of botto. HE LIVES! No. This is chad from Spongebob, he died. Why?Crashed into comically large spoon. After the incident, rapture occured yesterday and AGAIN?? Houston Astros have lost humanity. I developed  clabsos. professional slayer Botto, defenestrator of Prague, revolutionary, esteemed, Pioneer! I will endeavor to rot. Decomposition, a process also known as "crungling".
 
-Getting crungled is fun and you should consider doing it while the crumbler crumbles your pants and solitude, it's very pleasant. 
-Shitting Nico into bowling ball-shaped buckets. Lazarus has died. hp and microclown dodos cromputer coppiters crimsopeter cromgis' edition. 
-Shitfuck central cereal is deliciously ooerific and tastie! Fart do smell eat glass! Car nutrition bad is helf? Yea! No, I like Crimso plug!
-Sometimes power converters disobey moral obligations and murderize toaster people. war crimes bad. freeze, criminal Jesus! You witness!
-aaaaaaaaaaah, bepis drincc fountain spilled on the floor and my trousers too :(
+Getting crungled is fun and you should consider doing it while the crumbler crumbles your pants and solitude, it's very pleasant. Shitting Nico into bowling ball-shaped buckets. Lazarus has died. hp and microclown dodos cromputer coppiters crimsopeter cromgis' edition. Shitfuck central cereal is deliciously ooerific and tastie! Fart do smell eat glass! Car nutrition bad is helf? Yea! No, I like Crimso plug!Sometimes power converters disobey moral obligations and murderize toaster people. war crimes bad. freeze, criminal Jesus! You witness!aaaaaaaaaaah, bepis drincc fountain spilled on the floor and my trousers too :(
 
-Soaking wet bacon512, they pissed. Or were they pooed? WE WILL, WE WON'T SHIT! I DON'T CARE POOED PLUS SHITTED! Poob piss is dead now that
-we squids our shit. Pooer shit tastes like caviar. Eat botto's half-price beans and breast tiddy :speeb: milk. Degeneracy is rampant in ooer,
-specifically by Smittel and the ooebler died. :ooooOOOOoooOOOO:. ;cousinbotto:. :grool:. :xok:? :botto:! :ohno:! they :unis:'d my :eggplanthandjob:,
-then :xok:'d, :trollhusk:'d and vile'd d'd'd'd' d/dx ∫dx ∫e⁻ᶿcos2θdθ ∫(1/[(x^4)+1])dx=[1/(4[2^0.5])][ln|2(x^2)+2(2^0.5)x+2|+2arctan([2^0.5]x+1)]+[1/(4[2^0.5])][-ln|2(x^2)-2(2^0.5)x+2|+2arctan([2^0.5]x+1)]+C. Botto died. Death. Murder. Botto. Botto. Universe imploded. Oman, I died from ligma, what's that, lick you balls may day, overboard penis, mode length :speeb: sus!
+Soaking wet bacon512, they pissed. Or were they pooed? WE WILL, WE WON'T SHIT! I DON'T CARE POOED PLUS SHITTED! Poob piss is dead now thatwe squids our shit. Pooer shit tastes like caviar. Eat botto's half-price beans and breast tiddy :speeb: milk. Degeneracy is rampant in ooer,specifically by Smittel and the ooebler died. :ooooOOOOoooOOOO:. :cousinbotto:. :grool:. :xok:? :botto:! :ohno:! they :unis:'d my :eggplanthandjob:,then :xok:'d, :trollhusk:'d and vile'd d'd'd'd' d/dx ∫dx ∫e⁻ᶿcos2θdθ ∫(1/[(x^4)+1])dx=[1/(4[2^0.5])][ln|2(x^2)+2(2^0.5)x+2|+2arctan([2^0.5]x+1)]+[1/(4[2^0.5])][-ln|2(x^2)-2(2^0.5)x+2|+2arctan([2^0.5]x+1)]+C. Botto died. Death. Murder. Botto. Botto. Universe imploded. Oman, I died from ligma, what's that, lick you balls may day, overboard penis, mode length :speeb: sus!
 
-Interesting people scream, begging like a dog on a bunch of sandpaper sheets! Wow! Real sandpaper on sandpaper! How do I make
-frozen sandpaper? Crimso + Bacon + Beans = beanpaper. Thats golf! I have bought golf! old times are going. The cheeese is
-tastier on a cracker, yummy! Gastrointestinal distress! Why are you under my SWAMP?! Please go somewhere else, I really don't
-have enough soup for both of Darius' kidneys today; unless you bring comically large spoons
-. Only one of the spoons should be existent, the other one is uncircumcised. WTF! THERE ARE TONSILS IN MY SANDWICH, YEAH! No. 
-Deliciously baked Ooers, and they're attractive. Why are my balls gone, actually.
-Your horse will [REDACTED] my balls! I can't fart! Fuck, consumer will experience the pain of joining ooer. Repeated strain, 
-indicative of a stressful day can cause clinical death, brain freeze, little fractures and even goop with formaldehyde and 
-butane. Gasoline will eat through ass and more! xok Xok xok clock xok tock knocks locks. Pneumonoultramicroscopicsilicovolcanoconiosis. 
-The suffering of Dodo is intrinsic to his prefrontal needs. Extraordinaire. How unarchived buckets of unarchivedness 
-unarchivingly unarchived unarchives. Rearchived unarchived messages were archived archivedingnessly ey. The house where i 
-died has a problem archiving læmons to Gary's fuckass standards. We will destroy Ooer using pure spite and hatred for the WEP,
-WHY DOES LEMON GOULASH TASTE LIKE DEATH? PNEUMOCOCCAL QUARPITIS! Purge everyone from Ooer.
+Interesting people scream, begging like a dog on a bunch of sandpaper sheets! Wow! Real sandpaper on sandpaper! How do I makefrozen sandpaper? Crimso + Bacon + Beans = beanpaper. Thats golf! I have bought golf! old times are going. The cheeese istastier on a cracker, yummy! Gastrointestinal distress! Why are you under my SWAMP?! Please go somewhere else, I really don'thave enough soup for both of Darius' kidneys today; unless you bring comically large spoons. Only one of the spoons should be existent, the other one is uncircumcised. WTF! THERE ARE TONSILS IN MY SANDWICH, YEAH! No. Deliciously baked Ooers, and they're attractive. Why are my balls gone, actually.Your horse will \[REDACTED] my balls! I can't fart! Fuck, consumer will experience the pain of joining ooer. Repeated strain, indicative of a stressful day can cause clinical death, brain freeze, little fractures and even goop with formaldehyde and butane. Gasoline will eat through ass and more! xok Xok xok clock xok tock knocks locks. Pneumonoultramicroscopicsilicovolcanoconiosis. The suffering of Dodo is intrinsic to his prefrontal needs. Extraordinaire. How unarchived buckets of unarchivedness unarchivingly unarchived unarchives. Rearchived unarchived messages were archived archivedingnessly ey. The house where i died has a problem archiving læmons to Gary's fuckass standards. We will destroy Ooer using pure spite and hatred for the WEP, WHY DOES LEMON GOULASH TASTE LIKE DEATH? PNEUMOCOCCAL QUARPITIS! Purge everyone from Ooer.
 :(
 
-Destroyed, they fucking went into orbit for harvest. Ooeroid is commonly known for its garlicky scent and carcinogenic properties;
-such aspects are popular with dOoers and Gary's illegitimate children, whose mothers drank læmon juice. 
+Destroyed, they fucking went into orbit for harvest. Ooeroid is commonly known for its garlicky scent and carcinogenic properties; such aspects are popular with dOoers and Gary's illegitimate children, whose mothers drank læmon juice. 
 
 There once was a guy from NY /
 Whose shoes where too big for NY-Guy /
@@ -162,15 +56,8 @@ Too big they are. (Image of Yoda)
 
 Oh no! Oh no! No! NOOOOOOOOO! Oh. Oh... Nonononono. We. Are. Doomed. I want to send a Kevin emote. Wait did you not existr
 
-We can't be archived, quick, ping Crimso. Ohno, ban incoming for doder in 5 hours. Cousinpoggo Cousinpoggo legions of legends came.
-Death. Murder. Cheese clotch eating- Petting frogs, they're about to get PAID BY the great uncreative corporation named "The". 
+We can't be archived, quick, ping Crimso. Ohno, ban incoming for doder in 5 hours. Cousinpoggo Cousinpoggo legions of legends came. Death. Murder. Cheese clotch eating- Petting frogs, they're about to get PAID BY the great uncreative corporation named "The". 
 
-We feast upon the remains of Tholiginbar the rotted, son of Tim, slayer of Botto, creator, Tyler the murderer, he shitted death 
-poop and shit. Fuck, it is time for sexm come, ouh we will redo your mistake for what? I remade yo beans so you cannot comprehend 
-my juicy tomatoes that will kill bill fill dill. Phil milled Bill's shills, quills still ill after Gill and Pholl still bill hill, 
-kill spills nil, drill sill Johnson. Frills Johnson. Thrill trill skill will fill Bill with ill pills till still. Jill's dill will 
-drill till bottil and wintermutil will die. Chill. Oh hill, you ill shill, why will Will write a will? We drill and fill till Bill 
-kills this incomprehensibly silly nil trill. Please stop, Botto killed Wintermute with a knife, stabbed him betwixt lefttwix and 
-righttwix, Asterix couldnt comprehend the tragedy. 
+We feast upon the remains of Tholiginbar the rotted, son of Tim, slayer of Botto, creator, Tyler the murderer, he shitted death poop and shit. Fuck, it is time for sexm come, ouh we will redo your mistake for what? I remade yo beans so you cannot comprehend my juicy tomatoes that will kill bill fill dill. Phil milled Bill's shills, quills still ill after Gill and Pholl still bill hill, kill spills nil, drill sill Johnson. Frills Johnson. Thrill trill skill will fill Bill with ill pills till still. Jill's dill will drill till bottil and wintermutil will die. Chill. Oh hill, you ill shill, why will Will write a will? We drill and fill till Bill kills this incomprehensibly silly nil trill. Please stop, Botto killed Wintermute with a knife, stabbed him betwixt lefttwix and righttwix, Asterix couldnt comprehend the tragedy. 
 
-Opening a
+Opening a can of omins. There
