@@ -1,6 +1,9 @@
-                                             THE OOERIC TALES
-                                              by  "the Ooers"
-                                       
+
+<p align="center">
+  <b>The Ooeric Tales</font></b><br>
+  <sup>By: "The Ooers"</sup>
+ 
+</p>                                  
 
 Once you're here, you should exit through the WORMS. Nonsense! WORMS God Says. Incredible. They warned us. 
 These foul creatures, these empty husks, they emptied my colons and ";"s oooueah. Slowly they dug a gaping 
