@@ -2,7 +2,7 @@
 <p align="center">
   <b>The Ooeric Tales</font></b><br>
   <sup>By: "The Ooers"</sup><br>
-  <sup><i>Stickygoat29, Desolated Dodo, Smittel Sment</i></sup>
+  <sup><i>Stickygoat29, Desolated Dodo, Goupil, Smittel Sment</i></sup>
 </p>                                  
 
 
